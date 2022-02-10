@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SerbanTA. I'm an enthusiastic, motivated, hard working and fast learning student,
+- 👋 Hi, I’m Serban Tudor and I'm an enthusiastic, motivated, hard working and fast learning student,
 completing the fourth year of my bachelor's degree. While I am
 passionate about technology, I am also ambitious and curious to see
 how things work while I may think of solutions to make them better. I
